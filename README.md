@@ -1,4 +1,6 @@
-![1500x500](https://github.com/user-attachments/assets/74d908f1-807e-4545-8654-70bdb3a91969)
+
+
+![Image](https://github.com/user-attachments/assets/be0c7862-b15c-49d5-871a-280085959169)
 
 ---
 [![](https://visitcount.itsvg.in/api?id=chamatamu&icon=0&color=0)](https://visitcount.itsvg.in)
